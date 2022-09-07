@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Haque
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning "C"
-- 💞️ I’m looking to collaborate on competitions for beginers 
+- 💞️ I’m looking to collaborate on competitions for beginners 
 - 📫 Can reach me through Haquee1111@gmail.com
