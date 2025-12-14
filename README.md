@@ -1,5 +1,2 @@
 - 👋 Hi, I’m Haque
-- 👀 I’m interested in Coding
-- 🌱 I’m currently learning "Python"
-- 💞️ I’m looking to collaborate on competitions for beginners 
 - 📫 Can reach me through supernova1994d@gmail.com
