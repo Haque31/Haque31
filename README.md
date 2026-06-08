@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Haque
-- 📫 Can reach me through supernova1994d@gmail.com
+- 📫 Can reach me through haquee1111@gmail.com
